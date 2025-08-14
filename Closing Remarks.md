@@ -1,0 +1,1 @@
+Nag pasalamat sa mga nag attend and picture taking. Tig organize ang pag distribute ning food and nag open forum sa mga students kung may mga kahapotan sinda about sa General Assembly.
